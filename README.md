@@ -1,1 +1,1 @@
-note revise the verses correctness before using them
+Note: revise the verses and translation correctness before using them
